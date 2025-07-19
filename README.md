@@ -1,5 +1,5 @@
 # Hello there!
-  I am M, I'm 14 and I go by any pronouns that aren't she/her (pref. he/they + specific neopronouns)
+  I am M, I'm 14 and I go by any pronouns that aren't she/her (pref. he/they + neos)
 
   Pround trans and aromantic guy.
   
